@@ -10,7 +10,4 @@ Meu nome é Diogo Santana
 ![]()
 @DiogoSantana06
 
-![https://media1.tenor.com/m/elMUDWUqM6EAAAAC/gear-5-laugh-gear-5.gif
-](link)
-https://media1.tenor.com/m/elMUDWUqM6EAAAAC/gear-5-laugh-gear-5.gif
 
